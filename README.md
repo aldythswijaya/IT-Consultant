@@ -15,7 +15,7 @@
      	
 - create supporting documents
 
-🧶 Crochet was one of my hobbies to fill up my spare time, I also make a pre-order to my products and sell it to e-commerce
+💼 I currently working at PT Talian Infodinamika for 1+ years
 
 -------------------------------------------------------------------------------------------
 ...
